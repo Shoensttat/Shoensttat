@@ -3,7 +3,7 @@
 ## **Conecte-se comigo**
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-000?style=for-the-badge&logo=linkedin&logoColor=0E76A8)](www.linkedin.com/in/felipe-juvêncio-41bb7a171/)
 
-[![Discord](https://img.shields.io/badge/Discord-000?style=for-the-badge&logo=discord)](https://www.discord.com/in/shoensttat#6077/)
+[![Discord](https://img.shields.io/badge/Discord-000?style=for-the-badge&logo=discord)](https://https://discord.gg/dDYas7KM8W)
 
 [![Instagram](https://img.shields.io/badge/Instagram-000?style=for-the-badge&logo=instagram)](https://www.instagram.com/juvenciofelipe/)
 ___
